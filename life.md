@@ -1,0 +1,25 @@
+@VSER's life
+===============
+
+- 03/08/1996 Born
+- 28/09/2011 Hollywood Undead @ Fowlers Live (Adelaide, SA)
+- 28/02/2014 Bliss n Eso & Horrorshow @ Clipsal 500 (Adelaide, SA)
+- 14/03/2014 Kerser @ Fowlers Live (Adelaide, SA)
+- 09/10/2014 Bill Bailey Limboland @ Thebarton Theatre (Adelaide, SA)
+- 24/10/2014 The Screaming Jets - 25th Anniversary Tour @ The Governor Hindmarsh Hotel (Adelaide, SA)
+- 07/11/2014 Hilltop Hoods - Cosby Sweater Tour @ Adelaide Showgrounds (Adelaide, SA)
+- 21/05/2015 Mötley Crüe & Alice Cooper @ Adelaide Entertainment Centre (Adelaide, SA)
+- 03/08/2018 Drapht @ Fat Controller (Adelaide, SA)
+- 23/06/2019 Seth Sentry - Wrong One Tour @ Lions Art Factory (Adelaide, SA)
+- 09/11/2019 Drapht - Summer They Say Tour @ Lions Art Factory (Adelaide, SA)
+- 16/09/2023 Kerser - A Gift & A Kers Final Album Tour @ Hindley St Music Hall (Adelaide, SA)
+- 07/10/2023 BLISS N ESO - Flying Colours 15th Anniversary Tour @ Hindley St Music Hall (Adelaide, SA)
+- 20/10/2023 Oliver Tree Presents Alone In A Crowd @ Hindley St Music Hall (Adelaide, SA)
+- 20/01/2024 Monster Truck Rumble @ Adelaide Showground (Adelaide, SA)
+- 01/03/2024 Eric André - The Eric André Show Live @ Hindley St Music Hall (Adelaide, SA)
+- 29/03/2024 $UICIDEBOY$, Ghostmane, Pouya, Germ & Shakewell @ Rod Laver Arena (Melbourne, VIC)
+- 17/04/2024 Bring Me the Horizon, Sleep Token & Make Them Suffer @ Adelaide Entertainment Centre Arena (Adelaide, SA)
+- 16/05/2024 VilifY, Kin., Stabbitha And The Knifey Wifeys & St. Sinner @ Crown and Anchor Hotel (Adelaide, SA)
+- 01/06/2024 Oz Comic-Con Adelaide 2024 @ Adelaide Showgrounds (Adelaide, SA)
+- 22/07/2024 Tenacious D @ Adelaide Entertainment Centre Arena (Adelaide, SA)
+- 10/08/2024 COMPLETE - Nothing to Show Album Tour @ The Governor Hindmarsh Hotel (Adelaide, SA)
