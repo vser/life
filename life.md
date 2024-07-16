@@ -6,7 +6,7 @@
 - 28/09/2011 Hollywood Undead @ Fowlers Live (Adelaide, SA)
 - 28/02/2014 Bliss n Eso & Horrorshow @ Clipsal 500 (Adelaide, SA)
 - 14/03/2014 Kerser @ Fowlers Live (Adelaide, SA)
-- 03/08/2014 18th Birthday 🎈
+- 3/8/2014 18th Birthday 🎈
 - 09/10/2014 Bill Bailey Limboland @ Thebarton Theatre (Adelaide, SA)
 - 24/10/2014 The Screaming Jets - 25th Anniversary Tour @ The Governor Hindmarsh Hotel (Adelaide, SA)
 - 07/11/2014 Hilltop Hoods - Cosby Sweater Tour @ Adelaide Showgrounds (Adelaide, SA)
@@ -14,7 +14,7 @@
 - 03/08/2017 21st Birthday 🎈
 - 03/08/2018 Drapht @ Fat Controller (Adelaide, SA)
 - 23/06/2019 Seth Sentry - Wrong One Tour @ Lions Art Factory (Adelaide, SA)
-- 09/11/2019 Drapht - Summer They Say Tour @ Lions Art Factory (Adelaide, SA)
+- 9/11/2019 Drapht - Summer They Say Tour @ Lions Art Factory (Adelaide, SA)
 - 16/09/2023 Kerser - A Gift & A Kers Final Album Tour @ Hindley St Music Hall (Adelaide, SA)
 - 07/10/2023 BLISS N ESO - Flying Colours 15th Anniversary Tour @ Hindley St Music Hall (Adelaide, SA)
 - 20/10/2023 Oliver Tree Presents Alone In A Crowd @ Hindley St Music Hall (Adelaide, SA)
@@ -27,3 +27,4 @@
 - 22/07/2024 Tenacious D @ Adelaide Entertainment Centre Arena (Adelaide, SA)
 - 10/08/2024 COMPLETE - Nothing to Show Album Tour @ The Governor Hindmarsh Hotel (Adelaide, SA)
 - 03/08/2026 30th Birthday 🎈
+- 03/08/2046 50th Birthday 🎈
