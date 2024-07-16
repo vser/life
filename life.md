@@ -6,7 +6,7 @@
 - 28/09/2011 Hollywood Undead @ Fowlers Live (Adelaide, SA)
 - 28/02/2014 Bliss n Eso & Horrorshow @ Clipsal 500 (Adelaide, SA)
 - 14/03/2014 Kerser @ Fowlers Live (Adelaide, SA)
-- 03/08/1997 18th Birthday 🎈
+- 03/08/2014 18th Birthday 🎈
 - 09/10/2014 Bill Bailey Limboland @ Thebarton Theatre (Adelaide, SA)
 - 24/10/2014 The Screaming Jets - 25th Anniversary Tour @ The Governor Hindmarsh Hotel (Adelaide, SA)
 - 07/11/2014 Hilltop Hoods - Cosby Sweater Tour @ Adelaide Showgrounds (Adelaide, SA)
