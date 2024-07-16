@@ -2,13 +2,16 @@
 ===============
 
 - 03/08/1996 Born
+- 03/08/1997 1st Birthday 🎈
 - 28/09/2011 Hollywood Undead @ Fowlers Live (Adelaide, SA)
 - 28/02/2014 Bliss n Eso & Horrorshow @ Clipsal 500 (Adelaide, SA)
 - 14/03/2014 Kerser @ Fowlers Live (Adelaide, SA)
+- 03/08/1997 18th Birthday 🎈
 - 09/10/2014 Bill Bailey Limboland @ Thebarton Theatre (Adelaide, SA)
 - 24/10/2014 The Screaming Jets - 25th Anniversary Tour @ The Governor Hindmarsh Hotel (Adelaide, SA)
 - 07/11/2014 Hilltop Hoods - Cosby Sweater Tour @ Adelaide Showgrounds (Adelaide, SA)
 - 21/05/2015 Mötley Crüe & Alice Cooper @ Adelaide Entertainment Centre (Adelaide, SA)
+- 03/08/2017 21st Birthday 🎈
 - 03/08/2018 Drapht @ Fat Controller (Adelaide, SA)
 - 23/06/2019 Seth Sentry - Wrong One Tour @ Lions Art Factory (Adelaide, SA)
 - 09/11/2019 Drapht - Summer They Say Tour @ Lions Art Factory (Adelaide, SA)
@@ -23,3 +26,4 @@
 - 01/06/2024 Oz Comic-Con Adelaide 2024 @ Adelaide Showgrounds (Adelaide, SA)
 - 22/07/2024 Tenacious D @ Adelaide Entertainment Centre Arena (Adelaide, SA)
 - 10/08/2024 COMPLETE - Nothing to Show Album Tour @ The Governor Hindmarsh Hotel (Adelaide, SA)
+- 03/08/2026 30th Birthday 🎈
