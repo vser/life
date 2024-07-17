@@ -24,7 +24,7 @@
 - 17/04/2024 Bring Me the Horizon, Sleep Token & Make Them Suffer @ Adelaide Entertainment Centre Arena (Adelaide, SA)
 - 16/05/2024 VilifY, Kin., Stabbitha And The Knifey Wifeys & St. Sinner @ Crown and Anchor Hotel (Adelaide, SA)
 - 01/06/2024 Oz Comic-Con Adelaide 2024 @ Adelaide Showgrounds (Adelaide, SA)
-- 22/07/2024 ~~Tenacious D @ Adelaide Entertainment Centre Arena (Adelaide, SA)~~ [Cancelled- fuck political correctness](https://www.abc.net.au/news/2024-07-17/-devastated-fans-mourn-tenacious-d-cancelled-tour-kevin-rudd/104107402])
+- 22/07/2024 <strike>Tenacious D @ Adelaide Entertainment Centre Arena (Adelaide, SA)</strike> [Cancelled- fuck political correctness](https://www.abc.net.au/news/2024-07-17/-devastated-fans-mourn-tenacious-d-cancelled-tour-kevin-rudd/104107402])
 - 10/08/2024 COMPLETE - Nothing to Show Album Tour @ The Governor Hindmarsh Hotel (Adelaide, SA)
 - 03/08/2026 30th Birthday 🎈
 - 03/08/2046 50th Birthday 🎈
