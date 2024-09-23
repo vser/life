@@ -13,11 +13,13 @@
 - 21/05/2015 Mötley Crüe & Alice Cooper @ Adelaide Entertainment Centre (Adelaide, SA)
 - 03/08/2017 21st Birthday 🎈
 - 03/08/2018 Drapht @ Fat Controller (Adelaide, SA)
+- 11/08/2018 SEXPO Adelaide 2018 @ Adelaide Convention Centre (Adelaide, SA) 🔥
 - 23/06/2019 Seth Sentry - Wrong One Tour @ Lions Art Factory (Adelaide, SA)
 - 9/11/2019 Drapht - Summer They Say Tour @ Lions Art Factory (Adelaide, SA)
 - 16/09/2023 Kerser - A Gift & A Kers Final Album Tour @ Hindley St Music Hall (Adelaide, SA)
 - 07/10/2023 BLISS N ESO - Flying Colours 15th Anniversary Tour @ Hindley St Music Hall (Adelaide, SA)
 - 20/10/2023 Oliver Tree Presents Alone In A Crowd @ Hindley St Music Hall (Adelaide, SA)
+- 10/11/2023 LoveX Australia: Melbourne @ Melbourne Convention and Exhibition Centre (Melbourne, VIC) 🔥
 - 20/01/2024 Monster Truck Rumble @ Adelaide Showground (Adelaide, SA)
 - 01/03/2024 Eric André - The Eric André Show Live @ Hindley St Music Hall (Adelaide, SA)
 - 29/03/2024 $UICIDEBOY$, Ghostmane, Pouya, Germ & Shakewell @ Rod Laver Arena (Melbourne, VIC)
@@ -26,5 +28,9 @@
 - 01/06/2024 Oz Comic-Con Adelaide 2024 @ Adelaide Showgrounds (Adelaide, SA)
 - 22/07/2024 <strike>Tenacious D @ Adelaide Entertainment Centre Arena (Adelaide, SA)</strike> [Cancelled- fuck political correctness](https://www.abc.net.au/news/2024-07-17/-devastated-fans-mourn-tenacious-d-cancelled-tour-kevin-rudd/104107402])
 - 10/08/2024 COMPLETE - Nothing to Show Album Tour @ The Governor Hindmarsh Hotel (Adelaide, SA)
+- 06/09/2024 Make Them Suffer, Bury Tomorrow (UK), Sprite (USA) & Bloom @ Hindley St Music Hall (Adelaide, SA)
+- 05/10/2024 SXPO Australia: Adelaide 2024 @ Goyder Pavillion (Adelaide, SA) 🔥
+- 05/10/2024 Australian Tattoo Expo - Adelaide 2024 @ Jubilee Pavilion (Adelaide, SA)🔥
+- 13/11/2024 Hanabie. Australian Tour @ The Gov (Adelaide, SA)
 - 03/08/2026 30th Birthday 🎈
 - 03/08/2046 50th Birthday 🎈
