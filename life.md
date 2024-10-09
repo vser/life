@@ -31,6 +31,7 @@
 - 06/09/2024 Make Them Suffer, Bury Tomorrow (UK), Sprite (USA) & Bloom @ Hindley St Music Hall (Adelaide, SA)
 - 05/10/2024 <strike>SXPO Australia: Adelaide 2024 @ Goyder Pavillion (Adelaide, SA) 🔥</strike> [POSTPONED]
 - 05/10/2024 <strike>Australian Tattoo Expo - Adelaide 2024 @ Jubilee Pavilion (Adelaide, SA)🔥</strike> [POSTPONED]
+- 01/11/2024 Project Hardstyle Presents: Hardstyle Halloween @ Lions Art Factory (Adelaide, SA)
 - 13/11/2024 Hanabie. Australian Tour @ The Gov (Adelaide, SA)
 - 04/12/2024 Korn @ Adelaide Entertainment Centre (Adelaide, SA)
 - 03/08/2026 30th Birthday 🎈
