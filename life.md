@@ -29,8 +29,9 @@
 - 22/07/2024 <strike>Tenacious D @ Adelaide Entertainment Centre Arena (Adelaide, SA)</strike> [Cancelled- fuck political correctness](https://www.abc.net.au/news/2024-07-17/-devastated-fans-mourn-tenacious-d-cancelled-tour-kevin-rudd/104107402])
 - 10/08/2024 COMPLETE - Nothing to Show Album Tour @ The Governor Hindmarsh Hotel (Adelaide, SA)
 - 06/09/2024 Make Them Suffer, Bury Tomorrow (UK), Sprite (USA) & Bloom @ Hindley St Music Hall (Adelaide, SA)
-- 05/10/2024 SXPO Australia: Adelaide 2024 @ Goyder Pavillion (Adelaide, SA) 🔥
-- 05/10/2024 Australian Tattoo Expo - Adelaide 2024 @ Jubilee Pavilion (Adelaide, SA)🔥
+- 05/10/2024 <strike>SXPO Australia: Adelaide 2024 @ Goyder Pavillion (Adelaide, SA) 🔥</strike> [POSTPONED]
+- 05/10/2024 <strike>Australian Tattoo Expo - Adelaide 2024 @ Jubilee Pavilion (Adelaide, SA)🔥</strike> [POSTPONED]
 - 13/11/2024 Hanabie. Australian Tour @ The Gov (Adelaide, SA)
+- 04/12/2024 Korn @ Adelaide Entertainment Centre (Adelaide, SA)
 - 03/08/2026 30th Birthday 🎈
 - 03/08/2046 50th Birthday 🎈
