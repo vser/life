@@ -33,6 +33,7 @@
 - 05/10/2024 <strike>Australian Tattoo Expo - Adelaide 2024 @ Jubilee Pavilion (Adelaide, SA)🔥</strike> [POSTPONED]
 - 01/11/2024 Project Hardstyle Presents: Hardstyle Halloween @ Lions Art Factory (Adelaide, SA)
 - 13/11/2024 Hanabie. Australian Tour @ The Gov (Adelaide, SA)
+- 15/11/2024 The Amity Affliction - 10th anniversary Australia (+ Ice Nine Kills, We Came As Romans and Heavensgate) @ The Drive (Adelaide, SA)
 - 04/12/2024 Korn @ Adelaide Entertainment Centre (Adelaide, SA)
 - 03/08/2026 30th Birthday 🎈
 - 03/08/2046 50th Birthday 🎈
