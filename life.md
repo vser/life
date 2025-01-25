@@ -35,5 +35,6 @@
 - 13/11/2024 Hanabie. Australian Tour @ The Gov (Adelaide, SA)
 - 15/11/2024 The Amity Affliction - 10th anniversary Australia (+ Ice Nine Kills, We Came As Romans and Heavensgate) @ The Drive (Adelaide, SA)
 - 04/12/2024 Korn @ Adelaide Entertainment Centre (Adelaide, SA)
+- 04/02/2025 Slipknot @ Adelaide Entertainment Centre (Adelaide, SA)
 - 03/08/2026 30th Birthday 🎈
 - 03/08/2046 50th Birthday 🎈
