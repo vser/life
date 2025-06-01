@@ -37,5 +37,10 @@
 - 04/12/2024 Korn @ Adelaide Entertainment Centre (Adelaide, SA)
 - 04/02/2025 Slipknot & Vended @ Adelaide Entertainment Centre (Adelaide, SA)
 - 08/03/2025 ERRA, Silent Planet & Resolve - Erra 'Cure' Australian Tour 2025 @ Lions Art Factory (Adelaide, SA)
+- 02/05/2025 MERKULES - The Survivor's Guilt Tour @ The Governor Hindmarsh Hotel (Adelaide, SA)
+- 30/05/2025 Ocean Grove Odd Label Australia Tour 2025 + Diamond Construct & Dregg @ UniBar Adelaide (Adelaide, SA)
+- 31/05/2025 Ocean Sleeper, Zero 9:36, Point North & Heists @ The Governor Hindmarsh Hotel (Adelaide, SA)
+- 13/06/2025 Bliss n Eso - Party on the Moon Tour @ Hindley St Music Hall (Adelaide, SA)
+- 23/01/2026 The Plot in You Australian Tour 2026 + Fit for a King (usa), Boundaries (usa) & Banks Arcade @ Hindley St Music Hall (Adelaide, SA)
 - 03/08/2026 30th Birthday 🎈
 - 03/08/2046 50th Birthday 🎈
