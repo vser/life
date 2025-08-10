@@ -41,6 +41,10 @@
 - 30/05/2025 Ocean Grove Odd Label Australia Tour 2025 + Diamond Construct & Dregg @ UniBar Adelaide (Adelaide, SA)
 - 31/05/2025 Ocean Sleeper, Zero 9:36, Point North & Heists @ The Governor Hindmarsh Hotel (Adelaide, SA)
 - 13/06/2025 Bliss n Eso - Party on the Moon Tour @ Hindley St Music Hall (Adelaide, SA)
+- 12/07/2025 HANDS LIKE HOUSES w/ LUMENS + FLOW KOBRA + CONNECTIONS + AKIRA SLIDE @ UniBar Adelaide (Adelaide, SA)
+- 22/07/2025 TESTAMENT (USA) @ The Governor Hindmarsh Hotel (Adelaide, SA)
+- 05/08/2025 Silverstein, Real Friends & Wayside @ The Governor Hindmarsh Hotel (Adelaide, SA)
 - 23/01/2026 The Plot in You Australian Tour 2026 + Fit for a King (usa), Boundaries (usa) & Banks Arcade @ Hindley St Music Hall (Adelaide, SA)
 - 03/08/2026 30th Birthday 🎈
 - 03/08/2046 50th Birthday 🎈
+
