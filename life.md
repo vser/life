@@ -45,9 +45,12 @@
 - 22/07/2025 TESTAMENT (USA) @ The Governor Hindmarsh Hotel (SA)
 - 05/08/2025 Silverstein, Real Friends & Wayside @ The Governor Hindmarsh Hotel (SA)
 - 23/01/2026 The Plot in You Australian Tour 2026 + Fit for a King (usa), Boundaries (usa) & Banks Arcade @ Hindley St Music Hall (SA)
+- 31/01/2026 Froth & Fury Fest 2026 - Polaris, Soulfly, In Hearts Wake, Nailbomb, Lagwagon, Abbath ‘Doom Occulta’, Ocean Sleeper, <br>Frenzal Rhomb, Comeback Kid, Archspire, Snot, Bleeding Through, Aborted, Blood Duster, Big Noter, <br>Gridiron, Mortal Sin, Private Function, Where’s The Pope?, Battlesnake, Double Dragon, <br>Diesect, Algor Mortis, Flangipanis, Zuko, The Bearded Clams, I Choose Violence, Bone Reaper, Rockys Pride & Joy, Broken Loose & Control The Sun
+- 22/05/2026 COMPLETE | AUSTRALIAN TOUR 2026
 - 24/07/2026 Motionless In White, Make Them Suffer & Currents @ Margaret Court Arena (VIC)
 - 03/08/2026 30th Birthday 🎈
 - 27/09/2026 Ashnikko - Smoochies Tour @ Hindley St Music Hall (SA)
 - 03/08/2046 50th Birthday 🎈
+
 
 
