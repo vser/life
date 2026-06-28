@@ -41,13 +41,14 @@
 - 30/05/2025 Ocean Grove Odd Label Australia Tour 2025 + Diamond Construct & Dregg @ UniBar Adelaide (SA)
 - 31/05/2025 Ocean Sleeper, Zero 9:36, Point North & Heists @ The Governor Hindmarsh Hotel (SA)
 - 13/06/2025 Bliss n Eso - Party on the Moon Tour @ Hindley St Music Hall (SA)
+- 22/06/2025 TESTAMENT (USA) @ The Governor Hindmarsh Hotel (SA)
 - 12/07/2025 Hands Like Houses w/ Lumens + Flow Kobra + Connections + Akira Slide @ UniBar Adelaide (SA)
-- 22/07/2025 TESTAMENT (USA) @ The Governor Hindmarsh Hotel (SA)
 - 05/08/2025 Silverstein, Real Friends & Wayside @ The Governor Hindmarsh Hotel (SA)
 - 23/01/2026 The Plot in You Australian Tour 2026 + Fit for a King (usa), Boundaries (usa) & Banks Arcade @ Hindley St Music Hall (SA)
-- 31/01/2026 Froth & Fury Fest 2026 - Polaris, Soulfly, In Hearts Wake, Nailbomb, Lagwagon, Abbath ‘Doom Occulta’, Ocean Sleeper, <br>Frenzal Rhomb, Comeback Kid, Archspire, Snot, Bleeding Through, Aborted, Blood Duster, Big Noter, <br>Gridiron, Mortal Sin, Private Function, Where’s The Pope?, Battlesnake, Double Dragon, <br>Diesect, Algor Mortis, Flangipanis, Zuko, The Bearded Clams, I Choose Violence, Bone Reaper, Rockys Pride & Joy, Broken Loose & Control The Sun
-- 22/05/2026 COMPLETE | AUSTRALIAN TOUR 2026
+- 31/01/2026 Froth & Fury Fest 2026 @ Adelaide Showground (SA) - Polaris, Soulfly, In Hearts Wake, Nailbomb, Lagwagon, Abbath ‘Doom Occulta’, Ocean Sleeper, <br>Frenzal Rhomb, Comeback Kid, Archspire, Snot, Bleeding Through, Aborted, Blood Duster, Big Noter, <br>Gridiron, Mortal Sin, Private Function, Where’s The Pope?, Battlesnake, Double Dragon, <br>Diesect, Algor Mortis, Flangipanis, Zuko, The Bearded Clams, I Choose Violence, Bone Reaper, Rockys Pride & Joy, Broken Loose & Control The Sun
+- 22/05/2026 COMPLETE | AUSTRALIAN TOUR 2026 @ Lions Art Factory (SA)
 - 24/07/2026 Motionless In White, Make Them Suffer & Currents @ Margaret Court Arena (VIC)
+- 31/07/2026 LUMENS with Caution:Thieves & Elision @ Rhino Room (SA)
 - 03/08/2026 30th Birthday 🎈
 - 27/09/2026 Ashnikko - Smoochies Tour @ Hindley St Music Hall (SA)
 - 03/08/2046 50th Birthday 🎈
