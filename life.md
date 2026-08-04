@@ -29,8 +29,8 @@
 - 22/07/2024 <strike>Tenacious D @ Adelaide Entertainment Centre Arena (SA)</strike> [CANCELLED](https://www.bbc.com/news/articles/c0dmx4p4m0lo)
 - 10/08/2024 COMPLETE - Nothing to Show Album Tour @ The Gov (SA)
 - 06/09/2024 Make Them Suffer, Bury Tomorrow (UK), Sprite (USA) & Bloom @ Hindley St Music Hall (SA)
-- 05/10/2024 <strike>SXPO Australia: Adelaide 2024 @ Goyder Pavillion (SA) 🔥</strike> [POSTPONED]
-- 05/10/2024 <strike>Australian Tattoo Expo - Adelaide 2024 @ Jubilee Pavilion (SA)🔥</strike> [POSTPONED]
+- 05/10/2024 <strike>SXPO Australia: Adelaide 2024 @ Goyder Pavillion (SA) 🔥</strike> [SCAMMED BY KEVIN MACK](https://www.nine.com.au/australia-news/tattoo-expo-adelaide-indefinite-postponement-20240924-p5z6ph.html)
+- 05/10/2024 <strike>Australian Tattoo Expo - Adelaide 2024 @ Jubilee Pavilion (SA)🔥</strike> [SCAMMED BY KEVIN MACK](https://www.nine.com.au/australia-news/tattoo-expo-adelaide-indefinite-postponement-20240924-p5z6ph.html)
 - 01/11/2024 Project Hardstyle Presents: Hardstyle Halloween @ Lions Art Factory (SA)
 - 13/11/2024 Hanabie. Australian Tour @ The Gov (SA)
 - 15/11/2024 The Amity Affliction - 10th anniversary Australia (+ Ice Nine Kills, We Came As Romans and Heavensgate) @ The Drive (SA)
