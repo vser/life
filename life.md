@@ -8,7 +8,7 @@
 - 14/03/2014 Kerser @ Fowlers Live (SA)
 - 3/8/2014 18th Birthday 🎈
 - 09/10/2014 Bill Bailey Limboland @ Thebarton Theatre (SA)
-- 24/10/2014 The Screaming Jets - 25th Anniversary Tour @ The Governor Hindmarsh Hotel (SA)
+- 24/10/2014 The Screaming Jets - 25th Anniversary Tour @ The Gov (SA)
 - 07/11/2014 Hilltop Hoods - Cosby Sweater Tour @ Adelaide Showgrounds (SA)
 - 21/05/2015 Mötley Crüe & Alice Cooper @ Adelaide Entertainment Centre (SA)
 - 03/08/2017 21st Birthday 🎈
@@ -27,7 +27,7 @@
 - 16/05/2024 VilifY, Kin., Stabbitha And The Knifey Wifeys & St. Sinner @ Crown and Anchor Hotel (SA)
 - 01/06/2024 Oz Comic-Con Adelaide 2024 @ Adelaide Showgrounds (SA)
 - 22/07/2024 <strike>Tenacious D @ Adelaide Entertainment Centre Arena (SA)</strike> [CANCELLED](https://www.bbc.com/news/articles/c0dmx4p4m0lo)
-- 10/08/2024 COMPLETE - Nothing to Show Album Tour @ The Governor Hindmarsh Hotel (SA)
+- 10/08/2024 COMPLETE - Nothing to Show Album Tour @ The Gov (SA)
 - 06/09/2024 Make Them Suffer, Bury Tomorrow (UK), Sprite (USA) & Bloom @ Hindley St Music Hall (SA)
 - 05/10/2024 <strike>SXPO Australia: Adelaide 2024 @ Goyder Pavillion (SA) 🔥</strike> [POSTPONED]
 - 05/10/2024 <strike>Australian Tattoo Expo - Adelaide 2024 @ Jubilee Pavilion (SA)🔥</strike> [POSTPONED]
@@ -37,21 +37,23 @@
 - 04/12/2024 Korn @ Adelaide Entertainment Centre (SA)
 - 04/02/2025 Slipknot & Vended @ Adelaide Entertainment Centre (SA)
 - 08/03/2025 ERRA, Silent Planet & Resolve - Erra 'Cure' Australian Tour 2025 @ Lions Art Factory (SA)
-- 02/05/2025 MERKULES - The Survivor's Guilt Tour @ The Governor Hindmarsh Hotel (SA)
+- 02/05/2025 MERKULES - The Survivor's Guilt Tour @ The Gov (SA)
 - 30/05/2025 Ocean Grove Odd Label Australia Tour 2025 + Diamond Construct & Dregg @ UniBar Adelaide (SA)
-- 31/05/2025 Ocean Sleeper, Zero 9:36, Point North & Heists @ The Governor Hindmarsh Hotel (SA)
+- 31/05/2025 Ocean Sleeper, Zero 9:36, Point North & Heists @ The Gov (SA)
 - 13/06/2025 Bliss n Eso - Party on the Moon Tour @ Hindley St Music Hall (SA)
-- 22/06/2025 TESTAMENT (USA) @ The Governor Hindmarsh Hotel (SA)
+- 22/06/2025 TESTAMENT (USA) @ The Gov (SA)
 - 12/07/2025 Hands Like Houses w/ Lumens + Flow Kobra + Connections + Akira Slide @ UniBar Adelaide (SA)
-- 05/08/2025 Silverstein, Real Friends & Wayside @ The Governor Hindmarsh Hotel (SA)
+- 05/08/2025 Silverstein, Real Friends & Wayside @ The Gov (SA)
 - 23/01/2026 The Plot in You Australian Tour 2026 + Fit for a King (usa), Boundaries (usa) & Banks Arcade @ Hindley St Music Hall (SA)
 - 31/01/2026 Froth & Fury Fest 2026 @ Adelaide Showground (SA) - Polaris, Soulfly, In Hearts Wake, Nailbomb, Lagwagon, Abbath ‘Doom Occulta’, Ocean Sleeper, <br>Frenzal Rhomb, Comeback Kid, Archspire, Snot, Bleeding Through, Aborted, Blood Duster, Big Noter, <br>Gridiron, Mortal Sin, Private Function, Where’s The Pope?, Battlesnake, Double Dragon, <br>Diesect, Algor Mortis, Flangipanis, Zuko, The Bearded Clams, I Choose Violence, Bone Reaper, Rockys Pride & Joy, Broken Loose & Control The Sun
 - 22/05/2026 COMPLETE | AUSTRALIAN TOUR 2026 @ Lions Art Factory (SA)
 - 24/07/2026 Motionless In White, Make Them Suffer & Currents @ Margaret Court Arena (VIC)
 - 31/07/2026 LUMENS with Caution:Thieves & Elision @ Rhino Room (SA)
+- 01/08/2026 Wage War Australian Tour 2026 (w. Orthodox & Heavensgate) @ The Gov (SA)
 - 03/08/2026 30th Birthday 🎈
+- 04/09/2026 Lumens X Seek Misery X Dreameater X Sørrøwstate (debut) @ TIA LIVE (SA)
+- 11/09/2026 Ocean Sleeper ‘Peace When I'm Dead’ Australia Tour (w. Nevertel (USA), Vana (NZ) & Outloved) @ Hindley St Music Hall (SA)
 - 27/09/2026 Ashnikko - Smoochies Tour @ Hindley St Music Hall (SA)
 - 03/08/2046 50th Birthday 🎈
-
 
 
