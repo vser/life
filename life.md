@@ -54,6 +54,8 @@
 - 04/09/2026 Lumens X Seek Misery X Dreameater X Sørrøwstate (debut) @ TIA LIVE (SA)
 - 11/09/2026 Ocean Sleeper ‘Peace When I'm Dead’ Australia Tour (w. Nevertel (USA), Vana (NZ) & Outloved) @ Hindley St Music Hall (SA)
 - 27/09/2026 Ashnikko - Smoochies Tour @ Hindley St Music Hall (SA)
+- 03/10/2026 Path To Fury 'Central Heat' @ The Gov (SA)
+- 27/11/2026 Life Pilot + Lumens, Grizzly Shark & With One Exception @ TIA LIVE (SA)
 - 03/08/2046 50th Birthday 🎈
 
 
